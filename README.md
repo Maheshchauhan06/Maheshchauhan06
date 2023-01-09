@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Mchauhan060898@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1uVa7JUhr64QTIePEbWiRtV_zQM-bERwd/view?usp=sharing](https://drive.google.com/file/d/1D8_iCk5nLLQRvu9P2aPjIRu4BbRKkfz5/view?usp=share_link)](https://drive.google.com/file/d/1uVa7JUhr64QTIePEbWiRtV_zQM-bERwd/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1uVa7JUhr64QTIePEbWiRtV_zQM-bERwd/view?usp=sharing]
 
 - ⚡ Fun fact **I always find easy way of doing things**
 
